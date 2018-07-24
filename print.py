@@ -4,5 +4,4 @@ Best regrads
 JIjo George
 
 Why i am like this
-Best
-Arathy Roy:
+i fedup with arathy roy:
