@@ -1,7 +1,14 @@
+
+
 hai
+
+
+
 .!!!how arew you 
+
 Best regrads
 JIjo George
 
-Why i am like this
-i fedup with arathy roy:
+
+I have to inform to arathy roy to prepare some food.
+or else that bugger wont't do anything
